@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mia-u
 - 👀 I’m interested in music and math
 - 🌱 I’m currently learning C, Guitar and math
-- 💞️ I’m looking to collaborate on science or easy thing
+- 💞️ I’m looking to collaborate on science or easy things
 - 📫 How to reach me: mail or Signal
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: cat
